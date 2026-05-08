@@ -1,4 +1,4 @@
-
+Get the ultimate Trello for macOS script with premium Trello for macOS Script | calendar integration + AI assistant. Featuring calendar integration and AI assistant, it's the best
 
 
 
